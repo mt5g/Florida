@@ -7,6 +7,5 @@
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/658--2.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/661--2.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/838--2.jpg)
-![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/845--2.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/846--2.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/done.jpg)
