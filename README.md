@@ -6,6 +6,7 @@
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/129--7.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/661--2.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/838--2.jpg)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/cumulus.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/done.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/portrait.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Florida/blob/master/snapshot.jpg)
